@@ -1,2 +1,2 @@
 # hello,would🥳
-## GitHub Pages😎
+## GitHub website😎
